@@ -525,6 +525,7 @@ Total deals: 256
 | -- | ---| ------ | ------ |
 |  👑 | Your Spot | [Submit your discount](https://github.com/trungdq88/Awesome-Black-Friday-Cyber-Monday/issues/368) now to secure the top spot! | 💸 |
 |  💰 | [Complete Marketing Bundle](https://www.makerbox.club/complete-marketing-bundle) | A collection of 5 actionable marketing resources for Solopreneurs. | 30% OFF with a promo code **BLACKFRIDAY**! |
+|  💰 | [Lazy Guide to Writing Your Book](https://brillup.podia.com/lazy-guide-to-writing-your-book?coupon=BLACKFRIDAYSALE) | Books aren't just products - they're an awesome marketing tool. But if you're not a writer, don't worry! This short course teaches you how to shortcut your way to writing (and finishing!) your book based on YOUR strengths. | Use **BLACKFRIDAYSALE** for 50% off until 30 Nov (Coupon automatically applied with link) |
 
 [⬆️ Go to Top](#table-of-contents)
 
